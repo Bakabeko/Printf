@@ -1,1 +1,1 @@
-all rights save by Bakabeko
+ok
